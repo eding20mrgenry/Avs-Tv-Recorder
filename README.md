@@ -214,4 +214,4 @@ AVS TV Recorder is offered as a full free version with all features and updates 
 Get started with AVS TV Recorder today and unlock the full potential of your video recording capabilities! Download now and enjoy seamless recordings from any source.
 
 ---
-**Last updated:** 2026-10-18 22:44:45 UTC
+**Last updated:** 2026-10-19 00:47:07 UTC
